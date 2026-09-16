@@ -1,1 +1,0 @@
-# Majored_Projects
